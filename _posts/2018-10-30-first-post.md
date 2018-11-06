@@ -1,4 +1,4 @@
-title: SneakerHead Culture layout: Post
+SneakerHead Culture 
 
 #My first post
 
