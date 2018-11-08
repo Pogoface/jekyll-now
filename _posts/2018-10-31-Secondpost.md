@@ -11,6 +11,4 @@ title: Sneaker Nation
    Heres a Link to the next Sneakercon. https://sneakercon.com/
    
    
-   ![pogo.face](/images/aye.jpeg)
-   
    
