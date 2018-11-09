@@ -9,6 +9,7 @@ A sneakerhead is a person who collects, trades, or sells sneakers as a hobby. A 
 
 Sneaker-heads contribute themselves to having the best sneaker game at the highest cost.
 
+
 ![download](/images/download.jpeg)   
 
 Yeezy Phtoshoot.
