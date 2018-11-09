@@ -10,7 +10,7 @@ title: Sneaker Nation
    
    Heres a Link to the next Sneakercon. https://sneakercon.com/
 
-![_config.yml](/images/aye.jpeg)
+![Download](/images/aye.jpeg)
 
    
    
