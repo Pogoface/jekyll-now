@@ -1,0 +1,16 @@
+---
+layout: post
+title : Top 10 Most Hyped Sneakers Of All Time.
+---
+
+Off-White x Air Jordan 1 - StockX 
+
+The Off-White Chicago 1 is a one of a kind collaboration of the Air Jordan 1 and the luxury fashion company Off-White.
+the luxury shoe consists of a Chicago Bulls-inspired varsity red, and a black and white finish. Retail is $190 but prices
+skyrocketed from sneaker resalers who got a chance to Cop the limited shoe. Most Resalers and online websites such as Stockx and
+Goat will ask for a whopping thousand plus per pair. Men Sizes will also determine the price. 
+
+![download](/images/Off-White x Air Jordan 1.jpeg) 
+
+
+ 
