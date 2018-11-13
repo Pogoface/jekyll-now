@@ -12,5 +12,7 @@ Goat will ask for a whopping thousand plus per pair. Men Sizes will also determi
 
 ![download](/images/Off-White x Air Jordan 1.jpeg) 
 
+image by StockX
+
 
  
